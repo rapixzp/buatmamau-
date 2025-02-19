@@ -1,0 +1,2 @@
+# buatmamau-
+hanya buat mamau
